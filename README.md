@@ -4,13 +4,13 @@
 
 
 - 🔭 I’m currently working on Amazon Web Services certification 
-- 🌱 I’m currently learning big data 
+- 🌱 I’m currently learning Big Data
 - 💬 Ask me about any of my projects 
 - 📬 How to reach me: <a href="mailto:hasstariq01@gmail.com">Let's get in touch!</a>
 -->
 
 ### Other places you can find me 
-- 🧗🏾‍♀️ [LinedIN](https://www.linkedin.com/in/hassan-tariq12/)
+- 🧗🏾‍♀️ [LinkedIN](https://www.linkedin.com/in/hassan-tariq12/)
 
 ###
 
