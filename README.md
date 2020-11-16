@@ -10,7 +10,7 @@
 -->
 
 ### Other places you can find me 
-- 🧗🏾‍♀️ [LinkedIN](https://www.linkedin.com/in/hassan-tariq12/)
+- 🧗🏾‍♀️ [LinkedIn](https://www.linkedin.com/in/hassan-tariq12/)
 
 ###
 
